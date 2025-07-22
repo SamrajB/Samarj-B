@@ -1,2 +1,2 @@
 # Samarj-B
-Hi guys, This is my Profile
+Hi Everyone, This is my Profile
